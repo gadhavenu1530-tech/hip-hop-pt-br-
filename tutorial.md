@@ -1,4 +1,6 @@
 # hip-hop-pt-br-
-uma tecnologia boa de aprendizado e fácil utilidade? no dispositivo:) "Mbeta"$ of 👈 e em renomear "chip sim" vocês podem usar um condensador terminal ou CPU gerenciamento de diretório local va em chip do Android Tablet Smartphone Galaxy renomear "Mbeta"$ of 👈 chip sim.
+uma tecnologia boa de aprendizado e fácil utilidade? no dispositivo:) "Mbeta"$ of 👈 vocês podem usar um condensador terminal ou PC notebook gerenciamento de diretório local em Android Tablet Smartphone Galaxy "Mbeta"$ of 👈
 e instale as dependências 
 pronto para gravar na sua banda local!
+PASTA: .HIP-HOP 48 👈 fassa!
+montagem: em diretorio/"Mbeta"$ of:.config/.HIP-HOP 48 (pasta/.config) no Android ou PC terminal 
