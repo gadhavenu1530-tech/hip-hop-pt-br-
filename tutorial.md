@@ -3,4 +3,4 @@ uma tecnologia boa de aprendizado e fácil utilidade? no dispositivo:) "Mbeta"$ 
 e instale as dependências 
 pronto para gravar na sua banda local!
 #PASTA: .HIP-HOP 48 👈 fassa!
-montagem: em diretorio: ("Mbeta"$ of:.config/.HIP-HOP 48)👈 terminal.(pasta/.config) 👈 Android. e com a versão do (APP  RS M500).
+montagem: em diretorio: ("Mbeta"$ of:.config/.HIP-HOP 48)👈 terminal . (pasta/.config) 👈 instale na pasta Android. e com a versão do (APP  RS M500).
